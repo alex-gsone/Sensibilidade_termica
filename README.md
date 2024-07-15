@@ -1,0 +1,1 @@
+# Sensibilidade_termica
